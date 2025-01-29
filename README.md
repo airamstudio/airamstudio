@@ -4,3 +4,4 @@
 - 🌱 I’m currently learning node.js
 - 😄 Pronouns: he/him/his el/le
 - ⚡ Fun fact: I'm a spaniard living in Canada
+- listening to: anything goes with Emma Chamberlain
